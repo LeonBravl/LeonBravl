@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LeonBravl
 - 👀 I’m interested in ...games
-- 🌱 I’m currently learning ...shkolla
+- 🌱 I’m currently learning ...shkolle
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
